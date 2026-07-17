@@ -1,4 +1,4 @@
-### Hi there, I'm Maal Damage! 👋
+### Hi there, I'm Maal Gamage! 👋
 
 ---
 
